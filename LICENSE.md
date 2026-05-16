@@ -1,4 +1,4 @@
-# 
+# automatic osmosis trading bot Algorithm | sandwich-attack-protection + MEV-strategies offers the most advanced osmosis trading bot, with sandwich-attack-protection and
 
 
 
